@@ -137,4 +137,11 @@ Here are the latest and most valuable SE Ranking discount codes you can use righ
 
 ### More coupons
 
-
+* [Blaze.ai Promo Code](https://github.com/williamssw/Blaze/)
+* [Dux-soup coupon](https://github.com/williamssw/Dux/)
+* [Typeform Discount Code](https://github.com/pauld34rf/Typeform/)
+* [educative coupon](https://github.com/pauld34rf/Educative/)
+* [Hostinger 20% Off Coupon Code](https://github.com/pauld34rf/Hostinger/)
+* [kdspy coupons](https://github.com/williamssw/kdspy)
+* [everbee promo code](https://github.com/williamssw/everbee/)
+* [jenni ai promo code](https://github.com/SERankingCoupon/Jenni/)
