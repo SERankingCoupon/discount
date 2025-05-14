@@ -6,25 +6,25 @@ Are you looking for latest [SE Ranking coupon](https://seranking.com/?ga=4268354
 
 ## 50% Off on All SE Ranking Plans
 
-New users can receive a **50% discount on any SE Ranking plan** by using the coupon code WELCOME20 at checkout. This offer includes monthly and annual subscriptions. It gives savings on Essential, Pro, and Business plans. Claim discount now.
+New users can receive a [**50% discount on any SE Ranking plan**](https://seranking.com/?ga=4268354&source=link) by using the coupon code WELCOME20 at checkout. This offer includes monthly and annual subscriptions. It gives savings on Essential, Pro, and Business plans. Claim discount now.
 
 [![Discount button](https://github.com/user-attachments/assets/2db59507-2079-4439-846e-f1059d22dd36)](https://seranking.com/?ga=4268354&source=link)
 
 ## SE Ranking Discount: 25% Off for First-Time Subscribers
 
-First-time subscribers can get a **25% discount on any SE Ranking plan**. Just enter the promo code SERANK25 at checkout. This offer is valid until April 30, 2025, and applies to Essential, Pro, and Business plans.
+First-time subscribers can get a [**25% discount on any SE Ranking plan**](https://seranking.com/?ga=4268354&source=link). Just enter the promo code SERANK25 at checkout. This offer is valid until April 30, 2025, and applies to Essential, Pro, and Business plans.
 
 [![Discount button](https://github.com/user-attachments/assets/2db59507-2079-4439-846e-f1059d22dd36)](https://seranking.com/?ga=4268354&source=link)
 
 ## SE Ranking Coupon - Get 15% Off On Monthly Plan
 
-You can **get 15% off your first monthly payment** with this coupon. It only works on your first bill, so if you want bigger savings, go for an annual plan instead.
+You can [**get 15% off your first monthly payment**](https://seranking.com/?ga=4268354&source=link) with this coupon. It only works on your first bill, so if you want bigger savings, go for an annual plan instead.
 
 [![Discount button](https://github.com/user-attachments/assets/2db59507-2079-4439-846e-f1059d22dd36)](https://seranking.com/?ga=4268354&source=link)
 
 ## SE Ranking Promo Code - Special 35% Off
 
-Get a 35% discount on SE Ranking annual plans by applying the special coupon code. This is one of the best offers available — perfect for long-term savings.
+Get a [35% discount on SE Ranking annual plans](https://seranking.com/?ga=4268354&source=link) by applying the special coupon code. This is one of the best offers available — perfect for long-term savings.
 
 [![Discount button](https://github.com/user-attachments/assets/2db59507-2079-4439-846e-f1059d22dd36)](https://seranking.com/?ga=4268354&source=link)
 
